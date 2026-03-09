@@ -3,6 +3,11 @@ This is the story of how I, along with three classmates, went from playing Minec
 
 ## Backstory
 <img width="400" height="225" alt="image" src="https://github.com/user-attachments/assets/a5779688-6d43-437c-a849-bf574f391c1c" />
+
+<img width="400" height="225" alt="image" src="https://github.com/user-attachments/assets/666e0395-67a8-474a-8061-e9ea6f7764d4" />
+
+<img width="400" height="225" alt="image" src="https://github.com/user-attachments/assets/c843a79e-bdfc-44cb-ad71-f020ad00a939" />
+
 <img width="225" height="225" alt="image" src="https://github.com/user-attachments/assets/2e33f47a-e100-47c1-ac8d-1435f1799b19" />
 
 <br>
